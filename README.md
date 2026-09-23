@@ -222,4 +222,4 @@ Alien Arena is provided as a full free version with all features and updates inc
 Don’t miss out on the action! **Download Alien Arena now and immerse yourself in thrilling interstellar battles!**
 
 ---
-**Last updated:** 2026-09-23 16:28:52 UTC
+**Last updated:** 2026-09-23 20:02:29 UTC
